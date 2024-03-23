@@ -1,1 +1,1 @@
-Hello, I'm a nub so ye, **just learning**
+Hello, I'm new to this. I'm just learning right now.
